@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **nicholas22oongwidjaja@gmail.com**
 
-- 📄 Know about my experiences [www.linkedin.com/in/nicholas-oongwidjaja-93750521a](www.linkedin.com/in/nicholas-oongwidjaja)
+- 📄 Know about my experiences [www.linkedin.com/in/nicholas-oongwidjaja-93750521a](https://www.linkedin.com/in/nicholas-oongwidjaja-93750521a/)
 
 - ⚡ Fun fact **I love watching movies**
 
