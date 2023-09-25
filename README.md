@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **nicholas22oongwidjaja@gmail.com**
 
-- 📄 Know about my experiences [www.linkedin.com/in/nicholas-oongwidjaja-93750521a](www.linkedin.com/in/nicholas-oongwidjaja-93750521a)
+- 📄 Know about my experiences [www.linkedin.com/in/nicholas-oongwidjaja-93750521a](www.linkedin.com/in/nicholas-oongwidjaja)
 
 - ⚡ Fun fact **Im Funny :D**
 
