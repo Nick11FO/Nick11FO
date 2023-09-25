@@ -1,4 +1,4 @@
-<--! ![MasterHead](https://raw.githubusercontent.com/punitkmryh/punitkmryh/master/Developer.gif) -->
+
 <h1 align="center">Hi 👋, I'm Nicholas F. Oongwidjaja</h1>
 <h3 align="center">A person who is eager to learn more about the frontend development</h3>
 <img align="right" alt="Coding" width="400" src="https://cdn.dribbble.com/users/1059583/screenshots/4171367/coding-freak.gif">
